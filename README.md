@@ -1,4 +1,4 @@
-## Hi,  I'm Tulio Silva or Thu...🖖
+## Hi,  I'm Tulio Silva or Thu...😉
 
 - 📚 Studying: Back-end C#.
 
